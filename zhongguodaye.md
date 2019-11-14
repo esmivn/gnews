@@ -104,3 +104,12 @@
 <p>就像功守道的那句话一样：</p>
 <p><strong>生活百般滋味，人生需要笑对。</strong></p>
 <p style="text-align: center;"><img class="unveil" src="http://m1.aboluowang.com/uploadfile/2019/1111/20191111122930223.gif" /></p>
+
+### 延展阅读：
+
+[北京一茶馆，人只进不出，好奇进去一看，惊呆了😱](https://is.gd/WDaqZP)
+
+[拾荒女子发现惊天秘密，干翻城市一把手](https://is.gd/plpBIb)
+
+[細思極恐，科技巨頭如何用人工智能左右我們的判斷](https://is.gd/PN9Ycg)
+
